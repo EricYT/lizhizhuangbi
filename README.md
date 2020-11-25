@@ -76,7 +76,3 @@ External Link (你可能需要梯子):
 Wiki.cn: https://zh.wikipedia.org/wiki/%E6%9D%8E%E5%BF%97#cite_note-9
 
 Lizhi's Homepage: http://www.nanjinglizhi.cn/ （已挂）  
-
-关于他本人的一些不当涉台言论，在这个敏感时期，我不做过多评价。但是，如果确是他本人所说，还是希望他可以做出解释。  
-
-我坚定支持一中原则，台湾是中国不可分割的一部分（Taiwan is a part of China），祖国的主权与领土完整不容侵犯，作为他的歌迷之前，我首先是一个中国人。
